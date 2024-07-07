@@ -1,5 +1,5 @@
 ### :wave: Olá, eu sou o *Nickolas*
-#### <sub>*"O que te trouxe até aqui não vai te levar pro proximo nivel. =("*</sub> 
+#### <sub>*" Eu nunca esperei por um milagre, farei as coisas acontecerem eu mesmo. "*</sub> 
 
 
 <a href="https://github.com/anuraghazra/github-readme-stats">
